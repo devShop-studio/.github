@@ -33,7 +33,7 @@ Key benefits of working with us:
 - Close collaboration with you throughout the process
 
 
-Want to learn more or get a free consultation? Reach out - we're happy to help. 
+Want to learn more or get a free consultation? Reach out to devshop.studio@gmail.com or through our website devshop.studio - we're happy to help. 
 
 Tell us about your project needs. We'll talk about your goals and suggest how our services can help you create a successful digital product.
 
